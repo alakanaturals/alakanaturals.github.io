@@ -1,1 +1,0 @@
-# alakanaturals.github.io
